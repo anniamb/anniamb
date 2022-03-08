@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+Master of Social Sciences. Talent acquisition enthusiast. Interested in well-being at work, motivation, behavior change, talent management and research in physical activity. 
+
+Currently working as a Talent Acquisition Specialist at Ambientia. 
+
+ #recruitment #rekry #itrekry
+
 <!--
 **anniamb/anniamb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
