@@ -1,3 +1,19 @@
+Talent Acquisition Specialist Ambientialla :smile:
+
+Ota rohkeasti yhteyttä ja jutellaan lisää mahdollisuuksistamme!
+
+Tällä hetkellä etsimme mm:
+
+- Javakehittäjiä
+- PHP-kehittäjiä
+- Softa-arkkitehtejä
+- Magentokehittäjiä
+- Wordpress-asiantuntijoita
+
+
+------------
+
+
 
 Master of Social Sciences. Talent acquisition enthusiast. Interested in well-being at work, motivation, behavior change, talent management and research in physical activity. 
 
