@@ -1,4 +1,3 @@
-### Hi there 👋
 
 Master of Social Sciences. Talent acquisition enthusiast. Interested in well-being at work, motivation, behavior change, talent management and research in physical activity. 
 
