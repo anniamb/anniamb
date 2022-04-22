@@ -5,10 +5,9 @@ Ota rohkeasti yhteyttä ja jutellaan lisää mahdollisuuksistamme!
 Tällä hetkellä etsimme mm:
 
 - Javakehittäjiä
-- PHP-kehittäjiä
 - Softa-arkkitehtejä
 - Magentokehittäjiä
-- Wordpress-asiantuntijoita
+- Data-asiantuntijoita
 
 
 ------------
