@@ -4,9 +4,8 @@ Ota rohkeasti yhteyttä ja jutellaan lisää mahdollisuuksistamme!
 
 Tällä hetkellä etsimme mm:
 
-- Javakehittäjiä
 - Softa-arkkitehtejä
-- Magentokehittäjiä
+- Kokeneita Java-kehittäjiä
 - Data-asiantuntijoita
 
 
