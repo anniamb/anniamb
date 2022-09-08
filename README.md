@@ -1,6 +1,6 @@
 Talent Acquisition Specialist Ambientialla :smile:
 
-Ota rohkeasti yhteyttä ja jutellaan lisää mahdollisuuksistamme!
+Ota rohkeasti yhteyttä ja jutellaan lisää mahdollisuuksistamme! anni.nelimarkka@ambientia.fi
 
 Tällä hetkellä etsimme mm:
 
